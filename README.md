@@ -1,1 +1,1 @@
-# vaidanicu.e-sport.github.io
+https://vaidanicu.github.io/e-sport.github.io/
